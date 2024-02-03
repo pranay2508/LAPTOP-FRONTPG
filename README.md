@@ -14,3 +14,4 @@
 
 
 ![Screenshot (121)](https://github.com/pranay2508/pranay2508.github.io/assets/56022492/22c578a4-9b1b-4574-8f40-a60609e8545a)
+![Screenshot (125)](https://github.com/pranay2508/LAPTOP-FRONTPG/assets/56022492/29afaaba-7df1-4ec8-af1c-7aee88a9dd1d)
